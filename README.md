@@ -1,0 +1,1 @@
+A personal portfolio website is a digital showcase of my professional skills and achievements. It includes sections like an introduction, portfolio showcasing my work, a resume, contact information, and possibly testimonials. 
